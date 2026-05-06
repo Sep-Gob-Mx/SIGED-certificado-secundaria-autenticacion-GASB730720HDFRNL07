@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GASB730720HDFRNL07
+GASB730720HDFRNL07
